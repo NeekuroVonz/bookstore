@@ -1,2 +1,2 @@
-# bookstore secret cuz i did it myself
+# bookstore secret
 shhhhhhhhhhhhhhhhhhhhhh
